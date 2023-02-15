@@ -1,3 +1,9 @@
+
+# Journal Entry # 2
+
+Now, its still the same day but here we are.
+
+
 # Journal Entry # 1 
 
 
