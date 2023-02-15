@@ -1,2 +1,2 @@
-# GaR_Journal_Entries
-journal entires for my games as research topic on johnWick
+# My Games As Research Project
+Journal entires for my games as research topic on John Wick and The Batman (2022) featured in Seinfeld. 
